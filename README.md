@@ -1,7 +1,7 @@
 
 ## Hi, I'm Moshe Davila!  🤙🏼 
 
-🔥 28 Year's Old, Developer from Israel Holon, and I have a degree in computer science.🔥
+🔥 27 Year's Old, Developer from Israel Holon, and I have a degree in computer science.🔥
 ### 💬 About Me
 
 Interacting with computers has been my passion ever since I was a young kid. 
